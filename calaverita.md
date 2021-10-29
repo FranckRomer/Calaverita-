@@ -11,10 +11,10 @@ anciosa estaba,
 contenta y desesperada   
 habia llegado desde la mañana   
 
-"¿Porque tardaron demaciado?"
-les preguntaba la huesuda
-"no es nuestra culpa habernos quedado"
-pero la huesuda seguia con la duda
+"¿Porque tardaron demaciado?"   
+les preguntaba la huesuda    
+"no es nuestra culpa habernos quedado"   
+pero la huesuda seguia con la duda    
 
 
 
